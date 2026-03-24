@@ -1,0 +1,1 @@
+# Tecno-Pova-3-LF7-ROM
